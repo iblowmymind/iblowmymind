@@ -1,4 +1,4 @@
-hello, i'm blw
+hello, i'm blue
 - i like to mess around with old technology
 - i like making music in my free time (and play the piano)
 - i'm pretty chill
